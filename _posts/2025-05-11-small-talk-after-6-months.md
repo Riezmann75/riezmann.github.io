@@ -3,7 +3,7 @@ title: "Tiên học lễ, hậu học văn"
 date: 2025-05-11
 ---
 
-![NTU-background](assets/images/NTU-School-Cover.png)
+![NTU-background](assets/img/NTU-School-Cover.png)
 
 Tuần vừa rồi là một tuần khá vui với bản thân tôi. Thế nên tôi dành ra ít phút ngồi viết chút cho có tí kỉ niệm.
 
