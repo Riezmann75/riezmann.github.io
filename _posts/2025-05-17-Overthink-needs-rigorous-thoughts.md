@@ -1,9 +1,8 @@
 ---
 title: Nghĩ nhiều phải nghĩ thông
 date: 2025-05-17
+image: assets/img/pepe-sit-next-window-in-rain.jpg
 ---
-
-![pepe ngồi cạnh mưa](assets/img/pepe-sit-next-window-in-rain.jpg)
 
 Cuối tuần lên trường gặp đúng hôm trời mưa hơi chán. Tôi xếp chân ngồi ban công nghe tiếng mưa xem tí triết cho nó suy tư rồi lại lật laptop ngồi dài dòng về một chủ đề mà tôi nghĩ nó cũng thiết thực. 
 
