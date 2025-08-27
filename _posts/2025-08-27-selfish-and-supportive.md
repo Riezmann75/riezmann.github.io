@@ -1,7 +1,7 @@
 ---
 title: Ích kỷ trong đời sống
 date: 2025-08-27
-image: assets/img/strong-enough-to-be-kind.jpg
+image: assets/img/pepe-suit.jpg
 ---
 
 Dạo gần đây tôi hay đọc truyện tu tiên, vẫn là thích nhất lúc trong cảnh khốn cùng rồi nhân vật chính xuất hiện, một thân pháp lực giải vây. Tuy vậy, đôi khi có những chỗ trong truyện tôi không thấy thích lắm. Ví dụ như khi truyện tha thứ quá dễ cho sự ích kỷ của nam chính. Mặc dù biết là anh ta dựa vào một tay năng lực để xây dựng đội ngũ, nhưng việc gây thù chuốc oán khiến một người trong đội chết rồi vẫn được cả đội cảm thông, không một tiếng trách móc khiến tôi thấy khó hiểu.
