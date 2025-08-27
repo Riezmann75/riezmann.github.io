@@ -16,4 +16,4 @@ Nói đến đây, thấy chuyện cũng bình thường lắm, mỗi người t
  
 Thầy tôi hay bảo con người dễ tự lừa bản thân nhất. Tôi tin, tôi tin lắm. Những ngày tôi cư xử không tốt tôi lại tự nhủ mình câu đấy. Có thể với một người nghĩ nhiều, ngộ tính lại không cao như tôi sẽ còn một chặng được dài mới đạt tới cảnh giới "Stoic Sage" mà tôi ngẫm nghĩ. Thở dài rồi cố gắng thôi. Cheers!
 
-P/S: Ảnh được lấy page [Vagabond](https://www.facebook.com/pepeandlife/posts/pfbid0Ur5EmYz9zbSXSJKGHB9kM6jRVgrLaDsNPhh6fUwDuRkPUvYacCYpEuz1zdqEkKxYl).
+P/S: Ảnh được lấy page [Vagabond](https://www.facebook.com/pepeandlife/posts/pfbid02k95SSQ3WnJuWC6UyE1LGLj8kWikGNc6VpdJLwu8hJ5mm29rdo84GQG3kqXJdCph9l).
